@@ -1,0 +1,2 @@
+# resolusi-tridhee
+Berlatih saja 
